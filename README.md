@@ -1,5 +1,9 @@
-### Hi there 👋
 
+
+[🎻](https://www.youtube.com/watch?v=DDNG58VkhnM)
+[🎸](https://twentyeightmusic.com/)
+[🚌](https://www.thesamba.com/vw/forum/viewtopic.php?t=432723)
+⌨
 <!--
 **edgood1/edgood1** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
