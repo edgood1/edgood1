@@ -1,4 +1,3 @@
-Senior Software Engineer in Infrastructure at GitHub.
 
 
 [🎻](https://www.youtube.com/watch?v=DDNG58VkhnM)
